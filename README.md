@@ -3,11 +3,6 @@
 ![Text](desktop/Capture d’écran, le 2022-06-11 à 13.32.21.pgn){width=50 height=50}
 
 
-Uploading Enregistrement d’écran, le 2022-06-11 à 13.25.23.mov…
+![6jctm4](https://user-images.githubusercontent.com/94491658/173199174-0451ffdc-9592-44f8-97e4-0e76686164e8.gif)
 
-[logo]: https://www.nichemarket.co.za/wp-content/uploads/2017/08/google-amp-fast-speed-travel-ss-1920.jpg
-<img width="1440" alt="Capture d’écran, le 2022-03-05 à 15 25 22" src="https://user-images.githubusercontent.com/94491658/173198900-a14284b1-9c59-4fd4-b126-cd176948b28e.png">
-
-
-https://user-images.githubusercontent.com/94491658/173199083-87fe452d-4583-420c-93c0-00c6b60eea17.mp4
 
